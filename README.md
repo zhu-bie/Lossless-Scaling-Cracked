@@ -1,6 +1,7 @@
 # Lossless-Scaling-Cracked
 A cracked Lossless Scaling
 # This is a FREE Cracked Lossless Scaling
+![image](https://github.com/user-attachments/assets/9aeb762f-a56c-483b-9641-21f7bd39dde7)
 
 ### ABOUT THIS SOFTWARE
 
